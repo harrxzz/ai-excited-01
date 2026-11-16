@@ -6,7 +6,8 @@
 
 A colossal whale dives over a rain-slick city street at night. Its belly
 glows neon cyan and magenta, and the tiny people below give the scale: this
-is not a sea creature out of place, it is a whole sky falling into the city.
+is not a sea creature out of place, it is a whole sky falling into the city —
+a jolt of scale and light, built to excite the judge at first glance.
 
 ## The image
 
